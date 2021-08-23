@@ -6,6 +6,7 @@ The final project for this course required classmates and I to form a team that 
 
 The greatest challenge I had during this project was trying to not become too overwhelmed by the demands of the project. As a group we would plan to have a given section completed at a certain time, but would inevitably run into set backs. Each setback made me feel like we weren't going to be able to complete the project. I eventually settled into a space where I allowed myself to be overly consumed with each aspect of what needed to be completed and allowed myself to focus on what I was learning about group projects. The journey of figuring out how to work together as a team was what was most important. Although not having a model that was able to make a prediction during group presentations wasn't the greatest of feelings, I was still proud of the fact that we completed as much as we had. One tip I have for future group would be to communicate as much as possible. Although we identified resources we would utilize to communicate with one another such as Slack, txt messaging, and Zoom, we did schedule dates and times we would meet.  Simply have the means by which we would communicate was not enough to ensure everyone knew when and how we would meet. I would suggest creating a shared calendar with scheduled meet up times to keep the group on track.
 
+Overall, this was a great experience! I believe we could have done an even better job had we met more often. This I believe would have led to us being able to  and were able to complete tasks on the schedule we set. 
 
 
 
